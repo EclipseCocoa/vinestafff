@@ -1,6 +1,5 @@
-# okay
-
-![1000003659](https://github.com/user-attachments/assets/7ad4e5d7-563b-4e52-8495-cb7f6301e125)
+# ok
+![1000006669](https://github.com/user-attachments/assets/9ce7054c-4dde-4f48-946e-8b32a02b707d)
 
 
 
